@@ -1,0 +1,9 @@
+### HOW  TO MAKE A TEA :
+
+* Heat the water to just about boiling point. ...
+* Add your **tea** bags to your pot or cup. ...
+* Pour the water directly onto the **tea** bags.
+* Stir the **tea** once, and then let it steep for 1.5-2 minutes. ...
+* Remove the **tea** bags.
+* Your **tea** is now ready to drink!
+
